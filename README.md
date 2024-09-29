@@ -1,4 +1,4 @@
-![WHITE-TIGER-BOTZ-INC](https://readme-typing-svg.demolab.com?font=Anton&size=40&pause=998&color=00FFFF&background=F7F2F20A&vCenter=true&width=580&lines=Hello+Everyone%F0%9F%91%8B!;OUR+TEAM+IS+WHITE+TIGER+BOTZ+INC;I+am+a+Self+Learned;BOTZ-AND-MODZ+Developer;I+am+from+Sri-Lanka;Nice+to+Meet+You)]
+![WHITE-TIGER-BOTZ-INC](https://readme-typing-svg.demolab.com?font=Anton&size=40&pause=998&color=00FFFF&background=F7F2F20A&vCenter=true&width=580&lines=Hello+Everyone%F0%9F%91%8B!;OUR+TEAM+IS+WHITE+TIGER+BOTZ+INC;I+am+a+Self+Learned;BOTZ-AND-MODZ+Developer;I+am+from+Sri-Lanka;Nice+to+Meet+You)
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
